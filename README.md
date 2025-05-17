@@ -15,7 +15,7 @@ Welcome to brackaszihmani site This site is owned and created by Uxidone Corpora
 
 
 
-for more info contact uxidone@gmail.com
+for more info contact uxidone@gmail.com            Responce tooks not that much time
 
 
 
